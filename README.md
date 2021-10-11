@@ -1,2 +1,1 @@
-# wares-valorant-
-Get robbed out of 15$
+This 14 year old retard paid me 15$ for UD softaim for valorant, but then complained and said stuff so I leaked 🐒
