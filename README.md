@@ -1,1 +1,1 @@
-This 14 year old retard paid me 15$ for UD softaim for valorant, but then complained and said stuff so I leaked 🐒
+Micca is a broke bitch who leaks shit he sells, but whatever, enjoy it.
